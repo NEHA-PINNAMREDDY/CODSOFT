@@ -1,0 +1,5 @@
+![task1 1](https://github.com/user-attachments/assets/46ab780f-1a13-4a7c-b944-ae542d586952)
+![task 1 2](https://github.com/user-attachments/assets/589f5169-4d58-4299-9fe3-b8ee4217390c)
+![task1 3](https://github.com/user-attachments/assets/552a9a60-b6f4-4894-a6f4-684a2947110a)
+![task 2](https://github.com/user-attachments/assets/d58db10c-a9f7-45e1-a739-6dd80486bede)
+![task 3](https://github.com/user-attachments/assets/e5718f54-a5f4-432c-bbd0-67cd9a8c42e2)
